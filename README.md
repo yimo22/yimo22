@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-Good day
+Good day.  
 If you want to contact me, please leave me a msg.
 
 ### being studied
